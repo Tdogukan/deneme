@@ -1,1 +1,1 @@
-BU İLK BAŞLANGIÇ
+olacak
